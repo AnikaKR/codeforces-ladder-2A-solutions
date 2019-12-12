@@ -1,1 +1,1 @@
-# petya-and-strings
+solutions!! EUREKA
